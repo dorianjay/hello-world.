@@ -2,4 +2,4 @@
 github tutorial 
 
 Hello 
-This is dorianjay , a fan of oscar wild and blues music 
+This is dorianjay , a fan of oscar wilde and blues music 
